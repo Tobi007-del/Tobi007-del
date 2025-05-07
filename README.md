@@ -2,6 +2,8 @@
 - 👀 I’m interested in Software development 
 - 🌱 I’m currently learning Web development 
 - 💞️ I’m looking to collaborate on projects
-- 📫 How to reach me @tobioketade007@gmail.com he_is_tobi_(instagram)
 - 😄 Pronouns: He
-- ⚡ Fun fact: I actually started all this about 8 months back as a result of a bad grade but that doesn't mean I shouldn't be taken seriously cause I learn fast, just a fun fact though 😅 
+- 📫 How to reach me @tobioketade007@gmail.com(mail) he_is_tobi_(instagram)
+- ⚡ Fun fact: I actually started all this about a year back as a result of a bad grade but that doesn't mean I shouldn't be taken seriously cause I learn fast, just a fun fact though 😅
+- Linkedin: https://www.linkedin.com/in/tobi-oketade-340801284/
+- Porfolio: https://bold.pro/my/oluwatobiloba-oketade-250507175042
